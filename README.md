@@ -1,3 +1,1 @@
-- 👋 Hi, I’m @Steinzu
-- 💞️ I’m looking to collaborate on basically nothing
-- 📫 How to reach me @Steins#3035
+Steins doing random things since yesterday.
